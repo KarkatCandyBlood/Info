@@ -8,6 +8,9 @@ $\color{#626262}{“HERE,}$ $\color{#626262}{PLEASE}$ $\color{#626262}{TAKE}$ $\
 
 
 
+$\color{#540700}{I}$ $\color{#540700}{KIN}$ $\color{#540700}{KARKAT}$ $\color{#540700}{,}$ $\color{#540700}{THE}$ $\color{#540700}{IMPOSTOR}$ $\color{#540700}{,}$ $\color{#540700}{KANKRI}$ $\color{#540700}{,}$ $\color{#540700}{THE}$ $\color{#540700}{SIGNLESS}$ $\color{#540700}{AND}$ $\color{#540700}{COMMANDER}$ $\color{#540700}{KARKAT}$
+
+$\color{#620B03}{DOUBLES}$ $\color{#620B03}{DNI}$ $\color{#620B03}{OR}$ $\color{#620B03}{YOU}$ $\color{#620B03}{WILL}$ $\color{#620B03}{BE}$ $\color{#620B03}{BLOCKED}$ $\color{#620B03}{/}$ $\color{#620B03}{HIDDEN.}$
 
 
 
