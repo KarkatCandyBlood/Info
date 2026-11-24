@@ -5,3 +5,4 @@ UGH I HATE DESCRIPTIONS
 
 
 
+$\color{#6B0D03}{HELLO}$ $\color{#6B0D03}{I}$ $\color{#6B0D03}{AM}$ $\color{#6B0D03}{KARKAT}$ $\color{#6B0D03}{,}$ $\color{#6B0D03}{ASPEN}$ $\color{#6B0D03}{OR}$ $\color{#6B0D03}{BRYAN}$
