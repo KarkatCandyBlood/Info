@@ -46,6 +46,11 @@ $\color{#CF0BC9}{BASIC}$ $\color{#CF0BC9}{DNI’S}$ $\color{#CF0BC9}{,}$ $\color
 
 
 
+<img width="200" height="200" alt="IMG_3482" src="https://github.com/user-attachments/assets/067bf3fd-5faa-45b1-ab5b-a88009c7b6bd" />
+
+
+
+
 
 <img width="1024" height="492" alt="8BC02270-7C2D-4B10-B646-259EF8D4F6BE" src="https://github.com/user-attachments/assets/65809ae5-46f2-406a-a2d6-ccd212b6e0b0" />
 
